@@ -1,0 +1,34 @@
+- GMKtec G3 Plus Mini PC, Intel Twin Lake N150, 16GB RAM, 1TB SSD, Supports Windows 11 Pro, In Stock, 2 Yrs
+- GMKtec M3 Mini PC, Intel i5-12450H, 32GB DDR4, 1TB SSD, In Stock, 2 Yrs
+- GMKtec K7 Plus Mini PC, Intel Core i7-13620H, 32GB DDR5-4800, 1TB SSD, In Stock
+- GMKtec Gaming Mini PC K8 Plus, AMD Ryzen 7 8845HS, 32GB DDR5 RAM, 1TB SSD, In Stock, 2 Yrs
+- GMKtec Mini PC K9, Intel Core Ultra 5 125H, 32GB DDR5, 1TB SSD, In Stock, 2 Yrs
+- ASUS Chromebook C223, 11.6" HD, Intel Celeron N3350, 4GB RAM, 32GB eMMC, In Stock, 1 Yr
+- Acer Gateway Chromebook 311, Intel Celeron N4500, 11.6" HD Display, 4GB LPDDR4X, 64GB eMMC
+
+- Price list uploaded on 27.04.25
+- Prices subject to change beyond 27.04.25
+- Fast Click does not guarantee price and stock availability beyond this date
+- Prices include VAT
+- Payment strictly by Bank transfer / Juice / Cash for Promo Price
+- ASUS Chromebook CX1, 14" - 12,990
+- ASUS Chromebook C223 11.6" - 13,990
+- ASUS Chromebook® CX1, 15.6" - 15,990
+- ASUS Laptop L210 11.6" - 16,690
+- Lenovo IdeaPad Slim 3 (128GB SSD) - 17,590
+- Lenovo IdeaPad Slim 3 (256GB SSD) - 17,990
+- ASUS Chromebook CX1, 14" Full HD - 17,990
+
+- Price list uploaded on 27.04.25 
+- Prices subject to change beyond 27.04.25 
+- Fast Click does not guarantee price and stock availability post 27.04.25 
+- Prices include VAT 
+- Payment by Bank transfer/Juice/Cash needed for Promo Price 
+- ASUS Vivobook Go 14 - 13,990 
+- Acer Spin 1 - 18,990 
+- Dell Inspiron 3583 - 18,990 
+- Asus X509MA-C82G1T (4GB RAM) - 17,990 
+- Asus X509MA-C82G1T (8GB RAM) - 18,990 (On Order)
+- Asus X509MA-C82G1T (8GB RAM, 256GB SSD) - 19,990 
+- Acer Chromebook Plus 514 - 22,990
+
